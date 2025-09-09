@@ -30,3 +30,14 @@ To conduct a comprehensive analysis of BlinkIT's sales performance, customer sat
 - 🛒 Top-selling products and categories
 - 🌍 Regional performance comparison
 - 👥 Customer segmentation and behavior analysis
+
+---
+
+
+## 📬 Contact
+
+Feel free to connect or reach out:
+
+- **LinkedIn**: [Your LinkedIn Profile  ](https://www.linkedin.com/in/aviral-agnihotri-3294a519b/)
+- **Email**: aviagnihotri1881@gmail.com
+
