@@ -38,6 +38,6 @@ To conduct a comprehensive analysis of BlinkIT's sales performance, customer sat
 
 Feel free to connect or reach out:
 
-- **LinkedIn**: [Your LinkedIn Profile  ](https://www.linkedin.com/in/aviral-agnihotri-3294a519b/)
+- **LinkedIn**: [ LinkedIn ](https://www.linkedin.com/in/aviral-agnihotri-3294a519b/)
 - **Email**: aviagnihotri1881@gmail.com
 
